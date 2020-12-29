@@ -5,6 +5,3 @@
 
 
 [Download Mod](https://i.imgur.com/U1BtOZr.png)
-
-[![](https://i.imgur.com/mU2gu2X.png with)](https://itunes.apple.com/us/app/among-us/id1351168404)
-[![](https://i.imgur.com/Cb6XRm2.png)](https://play.google.com/store/apps/details?id=com.innersloth.spacemafia)
